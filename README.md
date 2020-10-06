@@ -1,3 +1,9 @@
 # english
-words
+incredible
+
+orally
+ 
+expert
+pospective
+
 
